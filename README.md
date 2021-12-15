@@ -10,3 +10,6 @@ $79.99 [Nintendo - Joy-Con (L)/(R) Fortnite Fleet Force Bundle - Blue and Yellow
 
 ## Clothes
 coming soon...
+
+-----
+(Current) Total: $379.99
