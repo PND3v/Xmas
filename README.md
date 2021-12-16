@@ -16,6 +16,10 @@ $9.95 [Verosika - Antique Die Struck PIN *LIMITED STOCK* EST SHIP: JANUARY 2022]
 ## Clothes
 $20.93 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: MD
 
+## Other
+$17.43 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
+
+
 More __Coming Soon__...
 
 -----
