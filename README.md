@@ -1,5 +1,4 @@
 # My Christmas List
-
 This list will be updated over time. Clothing prices marked __!__ are not final.
 
 -----
@@ -15,10 +14,10 @@ $9.95 [Stolas and Little Octavia - GOLD Pin *LIMITED STOCK*](https://sharkrobot.
 $9.95 [Verosika - Antique Die Struck PIN *LIMITED STOCK* EST SHIP: JANUARY 2022](https://sharkrobot.com/products/verosika-antique-die-struck-limited-stock)
 
 ## Clothes
-$20.93 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: MD
+!$20.93 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: MD
 
 ## Other
-$17.43 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
+!$17.43 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
 
 
 More __Coming Soon__...
