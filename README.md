@@ -19,8 +19,6 @@ __!__$20.93 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/
 ## Other
 __!__$17.43 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
 
-
-
 More __Coming Soon__...
 
 -----
