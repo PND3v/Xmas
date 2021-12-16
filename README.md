@@ -1,5 +1,5 @@
 # My Christmas List
-This list will be updated over time. I understand not all items are able to ship before Christmas, and that's okay with me. I also understand that I most likely won't be able to get everything on this list, so I updated this list to be (mostly) organized by priority. [__Other__](https://github.com/PND3v/Xmas/blob/main/README.md#other) is be below clothing cause I felt like organizing it like that. lol. But there are a couple things I do want from that category, so it would be really cool if I could get those too, yk :P
+This list will be updated over time. I understand not all items are able to ship before Christmas, and that's okay with me. I also understand that I most likely won't be able to get everything on this list, so I updated this list to be (mostly) organized by priority. [__Other__](https://github.com/PND3v/Xmas/blob/main/README.md#other) is below [__Clothes__](https://github.com/PND3v/Xmas/blob/main/README.md#clothes) cause I felt like organizing it like that. lol. But there are a couple things I do want from that category, so it would be really cool if I could get those too, yk :P
 
 -----
 ## Dark Skully
