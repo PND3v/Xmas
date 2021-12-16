@@ -26,11 +26,19 @@ $11.00 [Ring Linked Chain Decor Garter Belt](https://us.romwe.com/Ring-Linked-Ch
 
 $2.00 [Star & Moon Decor Pants Chain](https://us.romwe.com/Star-Moon-Decor-Pants-Chain-p-2148772-cat-698.html)
 
-$13.00 [ROMWE Altspo Contrast Plaid Chain Skirt](https://us.romwe.com/Contrast-Plaid-Chain-Skirt-p-1842901-cat-682.html)
+$13.00 [ROMWE Altspo Contrast Plaid Chain Skirt](https://us.romwe.com/Contrast-Plaid-Chain-Skirt-p-1842901-cat-682.html) Size: M(6)
 
-$12.50 [ROMWE Kawaiiluv Plaid Pleated Skirt](https://us.romwe.com/Plaid-Pleated-Skirt-p-2102387-cat-682.html)
+$12.50 [ROMWE Kawaiiluv Plaid Pleated Skirt](https://us.romwe.com/Plaid-Pleated-Skirt-p-2102387-cat-682.html) Size: M(6)
 
-$17.50 [ROMWE Streetspo Colorblock Letter Graphic Sweatpants](https://us.romwe.com/Colorblock-Letter-Graphic-Sweatpants-p-1666922-cat-1806.html)
+$26.00 [ROMWE Altspo Solid Ripped Straight Leg Jeans](https://us.romwe.com/Solid-Ripped-Straight-Leg-Jeans-p-1844046-cat-813.html) Size: M(6)
+
+$14.50 [ROMWE Altspo Release-Buckle Pleated Skirt](https://us.romwe.com/Release-Buckle-Pleated-Skirt-p-937354-cat-682.html) Size: M(6)
+
+$17.50 [ROMWE Streetspo Colorblock Letter Graphic Sweatpants](https://us.romwe.com/Colorblock-Letter-Graphic-Sweatpants-p-1666922-cat-1806.html) Size: M(6)
+
+$12.50 [ROMWE Altspo Heart Tape Pleated Skirt](https://us.romwe.com/Heart-Tape-Pleated-Skirt-p-1844111-cat-682.html) Size: M(6)
+
+
 
 $47.00 [ROMWE Altspo Studded & Buckle Detail Platform Combat Boots](https://us.romwe.com/Studded-Buckle-Detail-Platform-Combat-Boots-p-1719989-cat-699.html) Size: EUR43(11)
 
