@@ -22,4 +22,4 @@ __!__$17.43 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.co
 More __Coming Soon__...
 
 -----
-(Current) Total: $379.99
+(Current) Total: ~$439
