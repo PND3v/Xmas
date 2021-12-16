@@ -8,11 +8,6 @@ $299.99 [Xbox Series S - Fortnite & Rocket League Bundle](https://www.amazon.com
 ## Fleet Force
 $79.99 [Nintendo - Joy-Con (L)/(R) Fortnite Fleet Force Bundle - Blue and Yellow](https://www.bestbuy.com/site/nintendo-joy-con-l-r-fortnite-fleet-force-bundle-blue-and-yellow/6458440.p?skuId=6458440&ref=212&loc=1&gclid=Cj0KCQiAnuGNBhCPARIsACbnLzq5gkOVv2txvZ8INJW4G9QBl2V11A_cydzUPs4ypTL3hy28wRBdGoYaAvzzEALw_wcB&gclsrc=aw.ds)
 
-## Pins
-$9.95 [Stolas and Little Octavia - GOLD Pin](https://sharkrobot.com/products/stolas-and-little-octavia-gold)
-
-$9.95 [Verosika - Antique Die Struck Pin](https://sharkrobot.com/products/verosika-antique-die-struck-limited-stock) EST SHIP: JANUARY 2022
-
 ## Clothes
 Romwe:
 $2.75 [Heart Decor Buckle Belt](https://us.romwe.com/Heart-Decor-Buckle-Belt-p-1671438-cat-698.html)
@@ -46,9 +41,6 @@ $47.00 [ROMWE Altspo Studded & Buckle Detail Platform Combat Boots](https://us.r
 HT:
 $29.90 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: `MD`
 
-## Other
-$24.90 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
-
 $12.90 [Gloomy Bear Best Friend Necklace Set](https://www.hottopic.com/product/gloomy-bear-best-friend-necklace-set/15140400.html)
 
 $24.90 [Girl Green Tone Girls Crop T-Shirt](https://www.hottopic.com/product/girl-green-tone-girls-crop-t-shirt/17011659.html) Size: `MD`
@@ -69,11 +61,14 @@ $6.90 [Pastel Purple & Pink Varsity Stripe Knee-High Socks](https://www.hottopic
 
 $8.90 [Pastel Blue Winged Heart Knee-High Socks](https://www.hottopic.com/product/pastel-blue-winged-heart-knee-high-socks/15889810.html)
 
-
-
 $17.90 [White & Black Stripe Ribbed Athletic Thigh High Socks](https://www.hottopic.com/product/white-black-stripe-ribbed-athletic-thigh-high-socks/14705015.html)
 
 $21.90 [Athletic 3 Stripe Thigh Highs Neon Blue](https://www.hottopic.com/product/athletic-3-stripe-thigh-highs-neon-blue/14652073.html)
+
+## Other
+$24.90 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
+
+$7.90 [Monarch Butterfly Enamel Pin](https://www.hottopic.com/product/monarch-butterfly-enamel-pin/16095777.html)
 
 More __Coming Soon__...
 
