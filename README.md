@@ -9,7 +9,6 @@ $299.99 [Xbox Series S - Fortnite & Rocket League Bundle](https://www.amazon.com
 $79.99 [Nintendo - Joy-Con (L)/(R) Fortnite Fleet Force Bundle - Blue and Yellow](https://www.bestbuy.com/site/nintendo-joy-con-l-r-fortnite-fleet-force-bundle-blue-and-yellow/6458440.p?skuId=6458440&ref=212&loc=1&gclid=Cj0KCQiAnuGNBhCPARIsACbnLzq5gkOVv2txvZ8INJW4G9QBl2V11A_cydzUPs4ypTL3hy28wRBdGoYaAvzzEALw_wcB&gclsrc=aw.ds)
 
 ## Clothes
-Romwe:
 $2.75 [Heart Decor Buckle Belt](https://us.romwe.com/Heart-Decor-Buckle-Belt-p-1671438-cat-698.html)
 
 $2.00 [Heart Thigh Garter](https://us.romwe.com/Heart-Thigh-Garter-p-1037684-cat-742.html)
@@ -38,7 +37,6 @@ $16.50 [ROMWE Altspo Plaid Colorblock Skirt](https://us.romwe.com/Plaid-Colorblo
 
 $47.00 [ROMWE Altspo Studded & Buckle Detail Platform Combat Boots](https://us.romwe.com/Studded-Buckle-Detail-Platform-Combat-Boots-p-1719989-cat-699.html) Size: `EUR43(11)`
 
-HT:
 $29.90 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: `MD`
 
 $12.90 [Gloomy Bear Best Friend Necklace Set](https://www.hottopic.com/product/gloomy-bear-best-friend-necklace-set/15140400.html)
