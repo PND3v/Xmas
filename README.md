@@ -1,5 +1,5 @@
 # My Christmas List
-This list will be updated over time. I understand not all items are able to ship before Christmas, and that's okay with me. Clothing prices marked __!__ are not final.
+This list will be updated over time. I understand not all items are able to ship before Christmas, and that's okay with me.
 
 -----
 ## Dark Skully
@@ -14,7 +14,7 @@ $9.95 [Stolas and Little Octavia - GOLD Pin](https://sharkrobot.com/products/sto
 $9.95 [Verosika - Antique Die Struck Pin](https://sharkrobot.com/products/verosika-antique-die-struck-limited-stock) EST SHIP: JANUARY 2022
 
 ## Clothes
-__!__$20.93 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: `MD`
+$29.90 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: `MD`
 
 $2.75 [Heart Decor Buckle Belt](https://us.romwe.com/Heart-Decor-Buckle-Belt-p-1671438-cat-698.html)
 
@@ -45,7 +45,7 @@ $16.50 [ROMWE Altspo Plaid Colorblock Skirt](https://us.romwe.com/Plaid-Colorblo
 $47.00 [ROMWE Altspo Studded & Buckle Detail Platform Combat Boots](https://us.romwe.com/Studded-Buckle-Detail-Platform-Combat-Boots-p-1719989-cat-699.html) Size: `EUR43(11)`
 
 ## Other
-__!__$17.43 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
+$24.90 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
 
 More __Coming Soon__...
 
