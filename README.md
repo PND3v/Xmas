@@ -1,5 +1,4 @@
 # My Christmas List
-This list was organized from most expensive to least.
 
 -----
 ## Dark Skully
