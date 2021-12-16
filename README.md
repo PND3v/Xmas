@@ -9,9 +9,9 @@ $299.99 [Xbox Series S - Fortnite & Rocket League Bundle](https://www.amazon.com
 $79.99 [Nintendo - Joy-Con (L)/(R) Fortnite Fleet Force Bundle - Blue and Yellow](https://www.bestbuy.com/site/nintendo-joy-con-l-r-fortnite-fleet-force-bundle-blue-and-yellow/6458440.p?skuId=6458440&ref=212&loc=1&gclid=Cj0KCQiAnuGNBhCPARIsACbnLzq5gkOVv2txvZ8INJW4G9QBl2V11A_cydzUPs4ypTL3hy28wRBdGoYaAvzzEALw_wcB&gclsrc=aw.ds)
 
 ## Pins
-$9.95 [Stolas and Little Octavia - GOLD Pin *LIMITED STOCK*](https://sharkrobot.com/products/stolas-and-little-octavia-gold)
+$9.95 [Stolas and Little Octavia - GOLD Pin](https://sharkrobot.com/products/stolas-and-little-octavia-gold)
 
-$9.95 [Verosika - Antique Die Struck PIN *LIMITED STOCK* EST SHIP: JANUARY 2022](https://sharkrobot.com/products/verosika-antique-die-struck-limited-stock)
+$9.95 [Verosika - Antique Die Struck Pin](https://sharkrobot.com/products/verosika-antique-die-struck-limited-stock) EST SHIP: JANUARY 2022
 
 ## Clothes
 __!__$20.93 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: MD
