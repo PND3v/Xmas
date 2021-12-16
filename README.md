@@ -1,5 +1,5 @@
 # My Christmas List
-This list will be updated over time. Clothing prices marked __!__ are not final.
+This list will be updated over time. I understand not all items are able to ship before Christmas, and that's okay with me. Clothing prices marked __!__ are not final.
 
 -----
 ## Dark Skully
@@ -15,6 +15,8 @@ $9.95 [Verosika - Antique Die Struck Pin](https://sharkrobot.com/products/verosi
 
 ## Clothes
 __!__$20.93 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: MD
+
+$2.75 [Heart Decor Buckle Belt](https://us.romwe.com/Heart-Decor-Buckle-Belt-p-1671438-cat-698.html)
 
 ## Other
 __!__$17.43 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
