@@ -14,8 +14,7 @@ $9.95 [Stolas and Little Octavia - GOLD Pin](https://sharkrobot.com/products/sto
 $9.95 [Verosika - Antique Die Struck Pin](https://sharkrobot.com/products/verosika-antique-die-struck-limited-stock) EST SHIP: JANUARY 2022
 
 ## Clothes
-$29.90 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: `MD`
-
+Romwe:
 $2.75 [Heart Decor Buckle Belt](https://us.romwe.com/Heart-Decor-Buckle-Belt-p-1671438-cat-698.html)
 
 $2.00 [Heart Thigh Garter](https://us.romwe.com/Heart-Thigh-Garter-p-1037684-cat-742.html)
@@ -43,6 +42,9 @@ $2.00 + $2.25 [ROMWE Altspo Fishnet Long Fingerless Gloves](https://us.romwe.com
 $16.50 [ROMWE Altspo Plaid Colorblock Skirt](https://us.romwe.com/Plaid-Colorblock-Skirt-p-1842956-cat-682.html) Size: `M(6)`
 
 $47.00 [ROMWE Altspo Studded & Buckle Detail Platform Combat Boots](https://us.romwe.com/Studded-Buckle-Detail-Platform-Combat-Boots-p-1719989-cat-699.html) Size: `EUR43(11)`
+
+HT:
+$29.90 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: `MD`
 
 ## Other
 $24.90 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
