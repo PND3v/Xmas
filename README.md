@@ -14,7 +14,7 @@ $9.95 [Stolas and Little Octavia - GOLD Pin *LIMITED STOCK*](https://sharkrobot.
 $9.95 [Verosika - Antique Die Struck PIN *LIMITED STOCK* EST SHIP: JANUARY 2022](https://sharkrobot.com/products/verosika-antique-die-struck-limited-stock)
 
 ## Clothes
-coming soon...
+__coming soon__...
 
 -----
 (Current) Total: $379.99
