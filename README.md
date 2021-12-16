@@ -14,7 +14,9 @@ $9.95 [Stolas and Little Octavia - GOLD Pin *LIMITED STOCK*](https://sharkrobot.
 $9.95 [Verosika - Antique Die Struck PIN *LIMITED STOCK* EST SHIP: JANUARY 2022](https://sharkrobot.com/products/verosika-antique-die-struck-limited-stock)
 
 ## Clothes
-__coming soon__...
+$20.93 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: MD
+
+More __Coming Soon__...
 
 -----
 (Current) Total: $379.99
