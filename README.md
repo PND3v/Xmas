@@ -49,6 +49,32 @@ $29.90 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-
 ## Other
 $24.90 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
 
+$12.90 [Gloomy Bear Best Friend Necklace Set](https://www.hottopic.com/product/gloomy-bear-best-friend-necklace-set/15140400.html)
+
+$24.90 [Girl Green Tone Girls Crop T-Shirt](https://www.hottopic.com/product/girl-green-tone-girls-crop-t-shirt/17011659.html) Size: `MD`
+
+$22.90 [Machine Gun Kelly Tickets To My Downfall Track Listing T-Shirt](https://www.hottopic.com/product/machine-gun-kelly-tickets-to-my-downfall-track-listing-t-shirt/14673902.html) Size: `MD`
+
+$24.90 [Machine Gun Kelly Love Race Girls T-Shirt](https://www.hottopic.com/product/machine-gun-kelly-love-race-girls-t-shirt/17099271.html) Size: `MD`
+
+$24.90 [Disney's The Owl House Staff Vines Girls T-Shirt](https://www.hottopic.com/product/disneys-the-owl-house-staff-vines-girls-t-shirt/16917173.html) Size: `MD`
+
+$22.90 [Motionless In White Graveyard Shift T-Shirt](https://www.hottopic.com/product/motionless-in-white-graveyard-shift-t-shirt/16510154.html) Size: `MD`
+
+$12.90 [Pink Lace Bow Black Thigh Highs](https://www.hottopic.com/product/pink-lace-bow-black-thigh-highs/14661104.html)
+
+$9.90 [Pink Bow White Thigh Highs](https://www.hottopic.com/product/pink-bow-white-thigh-highs/14661106.html)
+
+$6.90 [Pastel Purple & Pink Varsity Stripe Knee-High Socks](https://www.hottopic.com/product/pastel-purple-pink-varsity-stripe-knee-high-socks/14794799.html)
+
+$8.90 [Pastel Blue Winged Heart Knee-High Socks](https://www.hottopic.com/product/pastel-blue-winged-heart-knee-high-socks/15889810.html)
+
+
+
+$17.90 [White & Black Stripe Ribbed Athletic Thigh High Socks](https://www.hottopic.com/product/white-black-stripe-ribbed-athletic-thigh-high-socks/14705015.html)
+
+$21.90 [Athletic 3 Stripe Thigh Highs Neon Blue](https://www.hottopic.com/product/athletic-3-stripe-thigh-highs-neon-blue/14652073.html)
+
 More __Coming Soon__...
 
 -----
