@@ -97,4 +97,4 @@ $7.90 [Monarch Butterfly Enamel Pin](https://www.hottopic.com/product/monarch-bu
 More __Coming Soon__...
 
 -----
-(Current) Total: ~$439
+(Current) Total: ~$1,008.73 😿
