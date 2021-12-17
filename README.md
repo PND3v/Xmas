@@ -37,6 +37,10 @@ $16.50 [ROMWE Altspo Plaid Colorblock Skirt](https://us.romwe.com/Plaid-Colorblo
 
 $47.00 [ROMWE Altspo Studded & Buckle Detail Platform Combat Boots](https://us.romwe.com/Studded-Buckle-Detail-Platform-Combat-Boots-p-1719989-cat-699.html) Size: `EUR43(11)`
 
+$74.90 [Studded & Wrapped Buckle Platform Combat Boots](https://www.hottopic.com/product/studded-wrapped-buckle-platform-combat-boots/15824529.html) Size: `11`
+
+$29.90 [Black & White Plaid Pleated Skirt With Grommet Belt](https://www.hottopic.com/product/black-white-plaid-pleated-skirt-with-grommet-belt/12834626.html) Size: `MD`
+
 $29.90 [Pink & Black Pleated Cheer Skirt](https://www.hottopic.com/product/pink-black-pleated-cheer-skirt/14704359.html?cgid=girls-bottoms-skirts) Size: `MD`
 
 $12.90 [Gloomy Bear Best Friend Necklace Set](https://www.hottopic.com/product/gloomy-bear-best-friend-necklace-set/15140400.html)
@@ -59,9 +63,31 @@ $6.90 [Pastel Purple & Pink Varsity Stripe Knee-High Socks](https://www.hottopic
 
 $8.90 [Pastel Blue Winged Heart Knee-High Socks](https://www.hottopic.com/product/pastel-blue-winged-heart-knee-high-socks/15889810.html)
 
-$17.90 [White & Black Stripe Ribbed Athletic Thigh High Socks](https://www.hottopic.com/product/white-black-stripe-ribbed-athletic-thigh-high-socks/14705015.html)
+$1.00 [Black Pu Leather Choker Necklace](https://us.shein.com/Black-Pu-Leather-Choker-Necklace-p-305275-cat-1755.html)
 
-$21.90 [Athletic 3 Stripe Thigh Highs Neon Blue](https://www.hottopic.com/product/athletic-3-stripe-thigh-highs-neon-blue/14652073.html)
+$14.00 [Pleated Mini Skirt](https://us.shein.com/Pleated-Mini-Skirt-p-1890513-cat-1732.html) Size: `M(6)`
+
+$14.00 [ROMWE X Aak Striped Figure Print Contrast Collar Tee](https://us.shein.com/ROMWE-X-Aak-Striped-Figure-Print-Contrast-Collar-Tee-p-8534862-cat-1738.html) Size: `M(6)`
+
+$16.00 [ROMWE X Catsneeze Altspo 2 In 1 Striped Skeleton Print Tee](https://us.shein.com/ROMWE-X-Catsneeze-Altspo-2-In-1-Striped-Skeleton-Print-Tee-p-8534482-cat-1738.html) Size: `M(6)`
+
+$1.00 [Lock & Key Charm Mittens Ring](https://us.shein.com/Lock-Key-Charm-Mittens-Ring-p-2931365-cat-1759.html)
+
+$1.50 [10pcs Alloy Ring](https://us.shein.com/10pcs-Alloy-Ring-p-2917148-cat-1759.html)
+
+$1.50 [8pcs Alloy Ring](https://us.shein.com/8pcs-Alloy-Ring-p-2887272-cat-1759.html)
+
+$2.00 [8pcs Rhinestone Detail Ring](https://us.shein.com/8pcs-Rhinestone-Detail-Ring-p-2728597-cat-1759.html)
+
+$15.00 [Plaid Ribbon Flap Pockets Belted Pleated Skirt](https://us.shein.com/Plaid-Ribbon-Flap-Pockets-Belted-Pleated-Skirt-p-2272017-cat-1732.html) Size: `M(6)`
+
+$3.50 [4pcs Lock Charm Anklet](https://us.shein.com/4pcs-Lock-Charm-Anklet-p-1196452-cat-1908.html)
+
+$20.00 [SHEIN BASICS Mid-Waist Ripped Detail Cuffed Denim Shorts](https://us.shein.com/SHEIN-BASICS-Mid-Waist-Ripped-Detail-Cuffed-Denim-Shorts-p-2051728-cat-1935.html) Size: `M6`
+
+$6.00 [SHEIN Butterfly Rhinestone Stitch Detail Tee](https://us.shein.com/SHEIN-Butterfly-Rhinestone-Stitch-Detail-Tee-p-2396649-cat-1738.html) Size: `M(6)`
+
+$6.00 [SHEIN Daisy Embroidered Rib-knit Tee](https://us.shein.com/SHEIN-Daisy-Embroidered-Rib-knit-Tee-p-1941079-cat-1738.html) Size: `M(6)`
 
 ## Other
 $24.90 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/product/billie-eilish-cartoon-sketch-throw-blanket/15842693.html)
