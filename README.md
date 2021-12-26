@@ -94,7 +94,5 @@ $24.90 [Billie Eilish Cartoon Sketch Throw Blanket](https://www.hottopic.com/pro
 
 $7.90 [Monarch Butterfly Enamel Pin](https://www.hottopic.com/product/monarch-butterfly-enamel-pin/16095777.html)
 
-More __Coming Soon__...
-
 -----
-(Current) Total: ~$1,008.73 😿
+Total: ~$1,008.73 😿
